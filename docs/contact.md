@@ -1,17 +1,3 @@
-# 精东app下载
+# Hangzhou Leading Technology 
 
-We would love to hear from you! Reach out to us through any of the following methods:
-
-## Email
-
-support@mynewsoftware.com
-
-## Phone
-
-+1-800-123-12133
-
-## Address
-
-123 Software St, Suite 1010
-Tech City, TX 123415
-USA
+Hangzhou Leading Technology Co., Ltd.'s main product is intelligent monitoring. The company is located in Hangzhou, Zhejiang Province. Adhering to the business philosophy of "customer first, striving for excellence", we provide high-quality products and uphold the principle of "customer first" to provide high-quality services to our customers. If you are interested in the company's products, you can contact Manager Yuan, and we will satisfy you with high-quality products and services.
